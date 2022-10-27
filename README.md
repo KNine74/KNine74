@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @KNine74
+- 👀 I’m interested in ...music, games, chess, pool, juggling, magic, cards, i could go on
+- 🌱 I’m currently learning ...the basics of HTML, CSS, and javascript as weell as other languages. goal is shooting for full stack eng.
+- 💞️ I’m looking to collaborate on ...just about any thing. i like learning new things and meeting people so they go hand in hand
+- 📫 How to reach me ... anthoney.spence007@icloud.com
+- 
